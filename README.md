@@ -1,1 +1,1 @@
-# AKUM-contract
+# Akuma Inu ($AKUM)
